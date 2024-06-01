@@ -1,0 +1,1 @@
+x=msgbox("ur gay", 48, "System")
