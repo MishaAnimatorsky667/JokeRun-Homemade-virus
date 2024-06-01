@@ -1,0 +1,1 @@
+I am not responsible for the damage caused. This virus is just a joke, and it can be closed through the task manager. Rename this file and send it to a friend under the guise of a cheat for the game, or open it through a virtual machine. Anyway, I don't care. Do whatever you want with this virus. Have fun!
